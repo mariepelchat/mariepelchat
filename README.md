@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mariepelchat
 - 👀 I’m interested in ... art, cartoons and coffee☕️
-- - 🌱 I’m currently learning ... graphic design!💻
-- - 💞️ I’m looking to collaborate on ... anything really lol
+- 🌱 I’m currently learning ... graphic design!💻
+- 💞️ I’m looking to collaborate on ... anything really lol
 - 📫 How to reach me ... by email or social media! 
 
 <!---
